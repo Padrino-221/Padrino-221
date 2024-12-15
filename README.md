@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Padrino-221
+- 👋 Hi, I’m Syntax Samurai!!
 - 👀 I’m interested in Football, Hala Madrid!!
 - 🌱 I’m currently learning Information Technology.
 - 💞️ I’m looking to collaborate on Web develpment.
