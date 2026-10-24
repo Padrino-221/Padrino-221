@@ -2,7 +2,7 @@
 - 👀 I’m interested in Football, Hala Madrid!!
 - 🌱 I’m currently learning Information Technology.
 - 💞️ I’m looking to collaborate on Web develpment.
-- 📫 How to reach me scriptongeneral@outlook.com
+- 📫 How to reach me akoto.2026.edu@gmail.com
 - 😄 Pronouns: He/Him
 
 <!---
